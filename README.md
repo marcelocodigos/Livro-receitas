@@ -2,7 +2,7 @@
 
 Olá ! Bem vindo ao meu livro de receitas :yum:
 
-Strogonoff de frango
+1- Strogonoff de frango
 
-Pudim de leite condensado 
+2- Pudim de leite condensado 
 
